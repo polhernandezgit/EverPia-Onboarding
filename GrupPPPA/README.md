@@ -1,0 +1,4 @@
+- Pau Lopez
+- Pau Constanseu
+- Aran Perez
+- Pol Serrano - Líder
